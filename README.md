@@ -10,4 +10,4 @@ Meu nome é Pedro
 
 *Entre em contato comigo* 📪
 
-*coloque seu e-mail aqui*
+*00001104943670sp@aluno.educacao.sp.gov.br*
